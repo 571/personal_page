@@ -18,6 +18,6 @@ Harman Internation, Inc - LifeStyle - Software Engineering Summer Intern
 
 ### How to contact me?
 
-I am on [Linkedin](www.linkedin.com/in/qinyun571).
+I am on [Linkedin](https://www.linkedin.com/in/qinyun571).
 
 
